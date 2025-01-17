@@ -7,6 +7,5 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on app and Web for the backend of mobile apps.
 - 💬 Ask me about anything in app.
 - 📫 How to reach me: aliyousafkamboh@gmail.com
-- 😄 Pronouns: Nothing
-- ⚡ Fun fact: Nothing
+- ⚡ Fun fact: Video Games
 -->
